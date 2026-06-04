@@ -6,3 +6,9 @@ leet code practice
 
 2nd june 2026:-
 joined intership and working 
+
+3rd june 2026:-
+i already forgot to do this whatever
+
+4th june 2026:-
+developed the whole project but to many debugging
