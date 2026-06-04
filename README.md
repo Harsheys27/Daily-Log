@@ -4,6 +4,9 @@
 changes on jindal project 
 leet code practice
 
+1st june 2026:-
+joined and was made to study data analytics 
+
 2nd june 2026:-
 joined intership and working 
 
