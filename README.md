@@ -15,3 +15,6 @@ i already forgot to do this whatever
 
 4th june 2026:-
 developed the whole project but to many debugging
+
+5th june 2026:-
+worked on ui/ux and its coming out lowkey insane 
