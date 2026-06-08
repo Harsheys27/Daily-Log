@@ -18,3 +18,9 @@ developed the whole project but to many debugging
 
 5th june 2026:-
 worked on ui/ux and its coming out lowkey insane 
+
+6th june 2026:-
+weekend
+
+7th june 2026:-
+weekend
