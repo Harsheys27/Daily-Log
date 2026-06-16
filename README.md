@@ -30,3 +30,7 @@ weekend
 10th june
 
 11th june: started making a new project cause why not lol 
+
+forgot to enter data anways 
+
+16 days at kriti labs 
