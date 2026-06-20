@@ -36,5 +36,7 @@ forgot to enter data anways
 16 days at kriti labs 
 17 days at kriti labs: ageis ai -> tabular form created
 
-18NDAYS OMGGG
+18th isk 
+19th editing 
+20th weekend is one im sleeping 
 
