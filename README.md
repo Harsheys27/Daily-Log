@@ -39,8 +39,5 @@ forgot to enter data anways
 18th isk 
 19th editing 
 20th weekend is one im sleeping 
-
-lmao forget about this again hahahhaaha
-
-wsg good how you been long time no see
+VROOM
 
