@@ -44,13 +44,8 @@ VROOM
 khatam internship 
 
 fly high my friends
-
-
-linux incoming
-
-
-HELLO BUDDY
-FOR DAILY USE 
+fix ages report 
+fix rewinding report
 
 
 
