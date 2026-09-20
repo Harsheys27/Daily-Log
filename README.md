@@ -95,3 +95,7 @@
 
 * Weekend — no internship work.
 * Took a break from internship activities.
+
+## 20TH SEPTEMBER 2026
+
+*The internship project was not helpful anywhere tbh 
