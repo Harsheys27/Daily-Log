@@ -99,3 +99,7 @@
 ## 20TH SEPTEMBER 2026
 
 *The internship project was not helpful anywhere tbh 
+
+21sr sept 2026
+
+*wowowowow**
