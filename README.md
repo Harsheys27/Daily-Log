@@ -102,7 +102,7 @@
 
 21sr sept 2026
 
-*wowowowow**
+## OCTOBER
 
-
-0987654321
+* 20th October restarting
+* 
